@@ -9,6 +9,6 @@ These fit perfectly with my desire to do, to obtain satisfaction in achieving th
 
 “For everything there is a solution , if it is not there, develops it!”
 
-📫 **email**:giu.lazzara@gmail.com
+
 
 
